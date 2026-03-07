@@ -1,0 +1,4 @@
+*_priv/
+*_secret/
+*.env
+client_secret.json
