@@ -1,0 +1,49 @@
+# İran’daki Gerginliğin Danimarka’da Fısıltıları
+
+> “Ortadoğu’da yaklaşık 10.000 Danimarka vatandaşı mahsur kaldı!” [(Berlingske)](https://www.berlingske.dk/danmark/omkring-10000-danske-borgere-befinder-sig-i-mellemoesten?gaa_at=eafs&gaa_n=AWEtsqea2otDEWWxCG3yyDdnTqFlOKDTSzYNdP8TYM6qFOhQ33NkqjkhZTxKpcaW2NQ%3D&gaa_ts=69b21142&gaa_sig=hKdm0guoMwgTvdZ2W1H5s3NAOwgdET54xUaF1Z2nQdSiw_hFx7iM-e5zHXCXfAFrcUV40yKl1FfV-45poLe2Tw%3D%3D)
+
+Bu, geçtiğimiz hafta Danimarka haberlerinde en çok öne çıkan başlıklardan biriydi. ABD ve İran savaşa girerken, Ortadoğu’daki birçok Danimarkalı şimdi Danimarka’ya dönemeden mahsur kalmış durumda. İran’daki aylardır süren huzursuzluk ve bölgedeki gerginlikler göz önüne alındığında, gerekli önlemlerin alınmamış olması gerçekten de bir başarısızlıktır.
+
+Belki de bir neden, Danimarka makamlarının yeterince bilgi sahibi olmamasıdır. [Globalnyt’ün](https://globalnyt.dk/udlandsdaekning2025/) 2025 tarihli dış ilişkiler haberciliği raporuna göre, Danimarka medyasının odağının sadece %15’i Ortadoğu üzerineyken, bu oran Avrupa’ya ayrılan %52’lik payın gölgesinde kalmakta ve Kuzey Amerika için ayrılan %16’lık oranın gerisinde bulunmaktadır.
+
+Bu bilgi eksikliği göz önüne alındığında, ABD Başkanı Trump’ın [İran’da rejim değişikliği](https://abcnews.com/Politics/trump-new-call-regime-change-iran-justified-imminent/story?id=130629024) çağrısı yapması çılgınca görünebilir. Buraya nasıl geldiğimizi daha iyi anlamak için, Danca sınıfımdan bir İranlı ile yaptığım röportajı paylaşmak istiyorum. Görüşmecim, kimliğinin gizli kalması için “Leyla” adını kullanacak.
+
+**Not: Bu röportaj, ABD’nin 28 Şubat 2026’da İran’a yönelik saldırılarından günler önce yapılmıştır.**
+
+**Elif:** İran’da gelişen son olayları nasıl algılıyorsunuz?
+
+**Leyla:** Son birkaç aydır yaşanan huzursuzluk, özellikle İran’daki ekonomik duruma yönelik halkın memnuniyetsizliğinin bir yansıması oldu. Ülkenin kötü yönetimi, ulusal para birimi olan İran Riyali’nin devalüasyonuna ve birçok sektörde zayıflıklara yol açtı. Hükümetin sert müdahalesi ve baskısı sonucunda, protestolar yavaş yavaş hükümet değişikliği çağrılarına dönüştü.
+
+**Elif:** Protestocuların temel hedefleri nelerdi?
+
+**Leyla:** İran’daki protestocuların çoğunluğunun mevcut yönetim sisteminde bir değişiklik talep ettiğini ve Veliaht Prens Rıza Pehlevi’nin İran şahı olarak geri dönmesini desteklediğini gösteren güçlü kanıtlar var. Yaygın olarak diktatörlük rejimi olarak algılanan yönetimin ortadan kaldırılması yönünde güçlü bir kamuoyu talebi bulunmaktadır.
+
+> > Rıza Pehlevi, İran’ın eski Veliaht Prensi ve son Şah olan Muhammed Rıza Pehlevi’nin en büyük oğludur. 1978’de 17 yaşındayken Amerika Birleşik Devletleri’nde pilotluk eğitimi almak için İran’dan ayrıldı. Ertesi yıl, İran Devrimi babasının devrilmesine ve monarşinin kaldırılmasına yol açtı ve o zamandan beri sürgünde yaşamaktadır. Mevcut İran hükümetine karşı muhalefetin önde gelen isimlerinden biridir.
+
+**Elif:** Bu talepler genel nüfusun görüşlerini ne ölçüde yansıtıyor?
+
+**Leyla:** Sokakta gördüğümüz protestocuların dile getirdiği talepler, nüfusun geniş bir kesiminde yankı buluyor. Özellikle ekonomik zorluklardan ve sosyal kısıtlamalardan etkilenenler arasında.
+
+**Elif:** Potansiyel bir ABD müdahalesi konusunda genel halkın düşüncesi nedir?
+
+**Leyla:** Protestocular, İran hükümeti tarafından şiddetli ve silahlı bir baskıyla karşı karşıya kaldı. Bu bağlamda, protestocuların kendilerini savunma imkanları olmadan askeri silahlarla karşı karşıya olmaları nedeniyle, birçok kişi ABD’nin müdahalesini potansiyel olarak yardımcı bir unsur olarak görüyor.
+
+**Elif:** Halkın aradığı nihai sonuç veya çözüm nedir?
+
+**Leyla:** Siyasi değişim amaçlı gösterilerin hükümet tarafından şiddetle bastırılması ilk kez olmuyor. Protestocular, mevcut rejimin devrilmesini ve Rıza Pehlevi’nin İran’ın lideri olarak geri dönmesini talep ediyorlar.
+
+**Elif:** Barışçıl veya siyasi bir çözüm için hakim olan umutlar nelerdir?
+
+**Leyla:** Protestocular yalnızca tam bir hükümet değişikliği istiyorlar ve mevcut rejimle müzakere etmeye isteksizler. Talepleri, yönetim sisteminin hiçbir taviz verilmeden tamamen değiştirilmesidir.
+
+**Elif:** Şu anda diasporanın (yurtdışında yaşayanların) deneyimi veya bakış açısı nedir?
+
+**Leyla:** Yurtdışındaki İranlılar, rejim değişikliği ve Rıza Şah’ın geri dönmesi lehine dünya çapında gösterilere katılarak desteklerini tam olarak ifade ettiler. İran’daki tam internet kesintisi sırasında, diaspora İranlılarının sesini dünyaya duyurdu ve uluslararası toplumu hükümetin gerçekleştirdiği katliamlardan haberdar etti. Ayrıca, mevcut rejimin işlediği suçlar hakkında dünyayı bilgilendirmek ve uluslararası yardım aramak amacıyla, hükümet tarafından doktor ve hemşirelerin tutuklanmasıyla ilgili haberleri de paylaşıyorlar.
+
+> > Danimarka İstatistik Kurumu’na [(FOLK1C)](https://www.statbank.dk/20024) göre, Danimarka’da yaşayan İran kökenli 28.738 kişi bulunmaktadır (2025). Bu nüfus Kopenhag, Gladsaxe ve Lyngby-Taarbæk’in yanı sıra Aarhus ve Odense’de yoğunlaşmıştır.
+
+Leyla’nın son sözleri hayati bir noktayı vurguluyor. Anlatıların şiddetle çekiştiği bir dünyada, sıradan İranlıların sesleri genellikle kayboluyor—ülkede devlet tarafından bastırılıyor ve yurtdışında dış siyasi manevraların gölgesinde kalıyor.
+
+Donald Trump gibi figürler ve onun propaganda makinesi söyleme hakim olurken, İran halkının gerçek deneyimleri sık sık göz ardı ediliyor. Şimdi, her zamankinden daha fazla, medyanın gürültüyü kesip İran halkının kendi adına konuşabileceği bir platform sunmasına ihtiyaç var. Onların sesleri duyulmalı.
+
+Düzenleyen: Ahmet Akkoç
